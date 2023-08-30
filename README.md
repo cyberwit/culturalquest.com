@@ -1,1 +1,0 @@
-# culturalquest.github.io
